@@ -1,1 +1,1 @@
-# CoinToss-Group-1
+# CoinToss-Group-2
